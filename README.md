@@ -1,0 +1,1 @@
+# iMazing-Crack-No-Trial
